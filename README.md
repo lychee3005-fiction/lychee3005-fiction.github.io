@@ -1,1 +1,1 @@
-# lychee3005-novel.github.io
+# lychee3005-fiction.github.io
